@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **Modern, SEO-Friendly Websites for All Industries**
 
-- 🌱 I’m currently learning **Web Development**
+- 🌱  Expanding skills in **Modern Web Development**
 
 - 📫 How to reach me **smetekmaciej01@outlook.com**
 
